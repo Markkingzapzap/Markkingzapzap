@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Markkingzapzap
+- 👋 Hi, I’m @Eduzapzap
 - 👀 I’m interested in the army
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on my job
